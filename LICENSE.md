@@ -1,4 +1,4 @@
-# 
+# مميز Deribit bot التداول أدوات for Mac OS | نهائي Deribit bot التداول أدوات for PC Windows. Featuring مجموعات السيولة DEX and تحليل الزخم — optimized for maximum performance.
 
 
 
